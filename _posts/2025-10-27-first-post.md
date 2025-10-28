@@ -30,6 +30,7 @@ Juanjo: **No, que pereza. Juguemos play mejor.**
 El Deivid: **Maluco usted coseche y coseche pa que otro se lo eche.**  
 Migue: **Worklog, worklog. Hermano, falta un minuto pa' las 6.**  
 Angélica: **Daniel, me envías el reporte por favor. ¿Para cuándo lo tienes listo?**  
+Sergio: **Un gran poder conlleva una gran responsabilidad.**  
 Y Dani Cortés: **Pero, ¿Si me entiende?**  
 
 Sí, acabas de perder un minuto de tu vida, pero agradece que no fueron 2 horas como en mi caso.
