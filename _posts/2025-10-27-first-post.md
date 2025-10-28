@@ -17,16 +17,16 @@ En este preciso momento, me dedico a crear mi propio blog porque un profesor dij
 
 Se supone que debería hacerlo en inglés según la plantilla de la página, but it doesn't matter because I'm not bilingual yet.
 
-That's all, nothing more.
+That's all, nothing more.  
 Y como diría el buen Juanpa: **BOF.**  
-El Sebastian (Sin tilde): **Hola, hola. No, pues morite.**
+El Sebastian (Sin tilde): **Hola, hola. No, pues morite.**  
 El viejo Santi: **¿Y por qué no mejor se pega de este?**  
 Danfer: **Que duerma. Cállese, por favorrr.**  
 El joven Daren: **Qué más, Champions. Sí, sí. Dime qué pasó.**  
 Juli: **Padre Santo. Definitivamente no hay un día en FW que no aprendamos algo nuevo.**  
-Mari: **Guatafá. Nah, eso no.**
-Tabasan: **Ome Daniel, vamos por una cervecita pues, pues, puessss.**
-El Deivid: **Maluco usted coseche y coseche pa que otro se lo eche.**
-Y Angélica: **Daniel, me envías el reporte por favor. ¿Para cuándo lo tienes listo?**
+Mari: **Guatafá. Nah, eso no.**  
+Tabasan: **Ome Daniel, vamos por una cervecita pues, pues, puessss.**  
+El Deivid: **Maluco usted coseche y coseche pa que otro se lo eche.**  
+Y Angélica: **Daniel, me envías el reporte por favor. ¿Para cuándo lo tienes listo?**  
 
 Sí, acabas de perder un minuto de tu vida, pero agradece que no fueron 2 horas como en mi caso.
